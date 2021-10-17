@@ -1,2 +1,1 @@
-# Esta es la version final final del archivo.
-# Hay muchas versiones posibles.
+# En vez de su historia, de su vida.
