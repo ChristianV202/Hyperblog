@@ -1,1 +1,1 @@
-# En vez de su historia, de su vida.
+# En vez de su historia, de su vida y obra maestra.
